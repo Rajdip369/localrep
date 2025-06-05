@@ -1,1 +1,1 @@
-# this is uour plane discus area.
+# this is our plane discuss area.
